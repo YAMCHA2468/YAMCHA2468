@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @YAMCHA246
+- 🌱 I’m currently learning
